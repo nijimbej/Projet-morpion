@@ -9,4 +9,4 @@ aussi pour ce dernier on a du s'aider d'internet.
 Merci pour votre attention,
 
 Cordialement, 
-Joshua Nijimbere et Yann Kusanagi
+Joshua Nijimbere et Yann Sobgui
